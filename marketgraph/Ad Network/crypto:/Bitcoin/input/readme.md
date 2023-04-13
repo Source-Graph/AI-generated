@@ -1,0 +1,2 @@
+- Do you know about Bitcoin?
+- Are there any Bitcoin based advertising networks? 
